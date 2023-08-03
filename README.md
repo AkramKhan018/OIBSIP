@@ -5,3 +5,5 @@ Within the duration of my internship, I successfully completed three challenging
 I want to extend my heartfelt gratitude to Oasis Infobyte for giving me this wonderful opportunity to learn and grow professionally. Working with such a remarkable company has been a privilege, and I am eager to continue contributing my best efforts to support the development of the companies I work with in the future.
 
 Thank you once again to Oasis Infobyte and everyone involved in this enriching experience. I am excited about what the future holds and look forward to more fantastic opportunities ahead!
+
+Thanking the company once again!
